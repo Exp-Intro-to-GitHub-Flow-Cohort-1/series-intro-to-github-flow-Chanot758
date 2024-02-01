@@ -1,1 +1,1 @@
-Hej mit navn er chano
+Hej mit navn er chano kom nu
